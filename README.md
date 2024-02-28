@@ -11,4 +11,6 @@ I live in richmond va
 
 There are 16 students in my class
 My instructors name is Jamie
+My TA is Elliot
 This edit was on my own not following insturctions
+Today is the second day of class
